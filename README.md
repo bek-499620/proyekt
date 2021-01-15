@@ -1,0 +1,2 @@
+# proyekt
+shunchaki dars
